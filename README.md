@@ -1,1 +1,1 @@
-# Nintendo-Classic-SD-Mod-Installation
+# Nintendo-Classic-SD-Mod-Install-Guide
